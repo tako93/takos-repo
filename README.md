@@ -1,1 +1,1 @@
-# theyalow.github.io
+# https://tako93.github.io/theyalow/theyalow/
